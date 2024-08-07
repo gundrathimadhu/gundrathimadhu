@@ -10,7 +10,7 @@
 📫 How to reach me: **gundrathimadhuroy@gmail.com**
 
 ### Don't Miss My Projects!
-I’ve got some pretty cool stuff in my repos that’ll make you go "wow!" Seriously, recruiters and hiring managers, you don't want to miss these! 
+I’ve got some pretty cool stuff in my repos that’ll make you go "wow!" Seriously, recruiters and hiring managers, you don't want to miss these! Every month cool stuff will be updated here (;
 
 ---
 
